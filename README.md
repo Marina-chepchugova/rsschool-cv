@@ -1,1 +1,1 @@
-# rsschool-cv
+http://Marina-chepchugova.github.io/rsschool-cv/
